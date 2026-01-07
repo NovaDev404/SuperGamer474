@@ -8,4 +8,4 @@
 
 ---
 
-![Stats](https://githubcard.com/NovaDev404.svg?d=sXG5MmOC)
+![Stats](https://githubcard.com/NovaDev404.svg?d=t4vblkO1)
